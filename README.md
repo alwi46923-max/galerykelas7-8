@@ -1,0 +1,1 @@
+# galerykelas7-8
